@@ -1,0 +1,2 @@
+Habilidades Técnicas
+	-Soporte Tecnico
